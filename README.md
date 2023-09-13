@@ -1,4 +1,4 @@
 ### Bom Diorno🦋
-![](https://tenor.com/pt-BR/view/quero-mais-ferias-mais-ferias-quero-mais-ferias-i-want-more-vacation-gif-14624552)
+![](https://media.tenor.com/WW-VK2huE78AAAAM/quero-mais-ferias-mais-ferias.gif)
 
 Sou uma estudante de pensamento computacional
